@@ -2,11 +2,11 @@
 
 If you're an avid player of Coin Master, you know how exciting it can be to spin the wheel and collect rewards like coins, spins, pets, and more! But what if you could get your hands on a *huge* number of free spins—say, 5000 spins—without spending a penny? Well, you're in luck, because in this guide, we'll show you exactly how to claim your **Coin Master Free 5000 Spin Link** and maximize your gameplay experience in 2024.
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 **Claim Your Free 5000 Spin Link Today!**
 
 Before diving into the details, let’s get to the good part. You can claim your **Coin Master Free 5000 Spin Link** by following a few simple steps. All you need to do is click the link below and follow the instructions to receive your bonus spins:
-
-[**Claim Your Free 5000 Spins Here!**] *(Insert actual link to offer)*
 
 Now that you know how to claim your free spins, let’s explore how to use them, the benefits of having extra spins, and the best tips to make the most of them in Coin Master.
 
